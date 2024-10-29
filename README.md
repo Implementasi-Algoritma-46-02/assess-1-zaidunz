@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Zidan Syahid Agrifasa
 
-NIM : 
+NIM : 607062400072
 
 ## Instruksi
 
